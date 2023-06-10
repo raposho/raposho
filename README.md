@@ -1,4 +1,17 @@
-### Hi there 👋
+### Hi there!! 🐢
+- 💬 Spanish-speaking
+- 🐮 cow
+
+so uhmm...  
+![a cute reaction gif](https://media.tenor.com/udpvn47fJ_QAAAAC/nanachi-made-in-abyss.gif)
+  
+I'm experimening?? ... 
+
+### Things I want to do
+- host some project i have
+- learn something interesting
+- that includes programming
+- a custom Bocchi fumo (like [this one](https://www.youtube.com/watch?v=JE9B0qMsONY))
 
 <!--
 **raposho/raposho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
