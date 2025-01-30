@@ -5,12 +5,12 @@
 so uhmm...  
 ![a cute reaction gif](https://media.tenor.com/udpvn47fJ_QAAAAC/nanachi-made-in-abyss.gif)
   
-I'm experimening?? ... 
+I'm trying to figure what to do now ... 
 
 ### Things I want to do
-- host some project i have
-- learn something interesting
-- that includes programming
+- do something awesome w my life
+- learn some useful skill
+- actually, i'd like to play guitar
 - a custom Bocchi fumo (like [this one](https://www.youtube.com/watch?v=JE9B0qMsONY))
 
 <!--
